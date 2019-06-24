@@ -3,7 +3,8 @@
 Hii…friends
    Yeh video main apko kuch practical chize bataungi jisse aap use karke powerfull baan sakoge, power se meri matlab yeh thha ki aap ke logo aur aap ke surrounding ko influence karne ki ability, aur maan chayi chize hasil karne ki khasiyat jisse log aap ki respect karenge ,kuch toh sayad aap se darne bhi lagenge . so,
                         Lets start..3..2…1…
-    ## Law no.4:-> :- Always say less than necessary
+                        
+## Law no.4:-> :- Always say less than necessary
     
     
        Meri ek dost thi shree jo bahut jyada baat karti hai ,chahe usiko koi puche ya na puche wo aapni advise sabko deti reheti hai,jisse koi uski respect tak nehi karte the bache bhi nehi aur koi bhi uski baato ko seriously nehi leete hai ,phir uski baate kitne bhi sahi aur important hi kyun nah ho, usiko bahut hi gussa ati hai kyun ki koi usiki baat ko serious nehi leeta hai.
